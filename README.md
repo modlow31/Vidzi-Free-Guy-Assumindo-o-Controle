@@ -1,0 +1,1 @@
+# Vidzi-Free-Guy-Assumindo-o-Controle
